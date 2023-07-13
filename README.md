@@ -22,5 +22,8 @@ HERE IS THE VIDEO OF WORKING PROJECT:
 
 
 
-https://github.com/himanisheoran/Cricket_Game/assets/88571812/a41441e1-4e36-4c19-8aa8-ba0e9a41c5fa
+https://github.com/himanisheoran/Cricket_Game/assets/88571812/07d83a84-8a65-4497-9292-ff84e46e4cdf
+
+
+
 
